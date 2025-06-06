@@ -1,0 +1,1 @@
+Usei a inteligência artificial como inspiração do meu projeto, o meu projeto quero que ele represente a coletividade entre o campo e a cidade, que não há rivalidade entre esse meio por que são interdependentes, o meu projeto so muda de imagem bem simples so para nos lembrar desse ponto essencial. 
